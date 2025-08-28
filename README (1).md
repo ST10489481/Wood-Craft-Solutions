@@ -109,19 +109,20 @@ Sitemap
 ![Wireframe Flowchart Whiteboard](https://github.com/user-attachments/assets/3a363b85-d697-4b80-b9f2-f875f4c3abb5)
 
   **Bibliography **
+JenWoodHouse.com. Wood bead garland, distressed shelves & hanging planters [image online]. Available at: https://www.jenwoodhouse.com (Accessed: 27 August 2025). 
 
- **Bright living room with built‑in shelving.** *The Spruce / Christopher Lee Foto* \[image online]. Available at: *The Spruce* (Accessed: 27 August 2025).
+Marty’s Musings. Rustic coffee / side table made from reclaimed materials [image online]. Available at: https://www.martysmusings.net (Accessed: 27 August 2025). 
 
- **Built‑in cabinetry / custom shelves.** *Yelp / Woodworking Search Result* \[image online]. Available at: *Yelp.com* (Accessed: 27 August 2025).
+Muffin Group. (2023) Massachusetts Woodworks – example of a woodworking business website with high-quality imagery, minimalist design, and testimonials. Available at: https://muffingroup.com/blog/woodworking-websites (Accessed: 28 August 2025). 
 
- **Elegant freestanding bookcase.** *VermontWoodsStudios.com* \[image online]. Available at: *VermontWoodsStudios.com* (Accessed: 27 August 2025).
+StartAtHomeDecor.com. Reclaimed wood floating shelves above a sofa [image online]. Available at: https://www.startathomedecor.com (Accessed: 27 August 2025). 
 
- **Geometric or lantern‑inspired wood decor accents.** *YouTube video thumbnail* \[image online]. Available at: *YouTube* (Accessed: 27 August 2025).
+The Spruce / Christopher Lee Foto. Bright living room with built-in shelving [image online]. Available at: https://www.thespruce.com (Accessed: 27 August 2025). 
 
- **Modern kitchen cabinetry.** *Yelp / Custom Bookshelves Search Result* \[image online]. Available at: *Yelp.com* (Accessed: 27 August 2025).
+VermontWoodsStudios.com. Elegant freestanding bookcase [image online]. Available at: https://www.vermontwoodsstudios.com (Accessed: 27 August 2025). 
 
- **Reclaimed wood floating shelves above a sofa.** *StartAtHomeDecor.com* \[image online]. Available at: *StartAtHomeDecor.com* (Accessed: 27 August 2025).
+Yelp.com. Built-in cabinetry / custom shelves. Yelp / Woodworking Search Result [image online]. Available at: https://www.yelp.com (Accessed: 27 August 2025). 
 
- **Rustic coffee / side table made from reclaimed materials.** *Marty’s Musings* \[image online]. Available at: *MartysMusings.net* (Accessed: 27 August 2025).
+Yelp.com. Modern kitchen cabinetry. Yelp / Custom Bookshelves Search Result [image online]. Available at: https://www.yelp.com (Accessed: 27 August 2025). 
 
- **Wood bead garland, distressed shelves & hanging planters.** *JenWoodHouse.com* \[image online]. Available at: *JenWoodHouse.com* (Accessed: 27 August 2025).
+YouTube. Geometric or lantern-inspired wood decor accents. YouTube video thumbnail [image online]. Available at: https://www.youtube.com (Accessed: 27 August 2025). 
